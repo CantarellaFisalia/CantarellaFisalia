@@ -8,7 +8,7 @@
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Gamja+Flower&pause=1000&color=B6A7F7&center=true&width=435&lines=%22Aren't+these+jellyfish+beautiful%3F%22;%22Come%2C+try+touching+one...+a+light+caress.%22;%22There%2C+there%2C+you+needn't+be+afraid.%22;%22I+would+never+put+you+in+harm's+way.%22)](https://git.io/typing-svg)
 
-[Clip of the Week](https://www.youtube.com/shorts/2XRswpQOigM) &nbsp;&nbsp;&nbsp; [Clip of the Week Archive](https://pastebin.com/UqBp6Eit)
+[Clip of the Week](https://www.youtube.com/shorts/wzGdOo6MTcY) &nbsp;&nbsp;&nbsp; [Clip of the Week Archive](https://pastebin.com/UqBp6Eit)
 
 
 ![](https://komarev.com/ghpvc/?username=CantarellaFisalia&label=Sweet+dreams+my+dear+jellyfish&color=c5a4d9&style=for-the-badge)
