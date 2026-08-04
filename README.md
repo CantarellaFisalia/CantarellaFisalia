@@ -1,13 +1,14 @@
 <div align="center">
 
-<img src=https://github.com/CantarellaFisalia/CantarellaFisalia/blob/df2dc3bbc4d0544a6fcbb2c36ceef7a318f7445e/tumblr_1c96ac2c6831883af46fd66612cbcd33_62996cab_2048.png />
-</p>
+$${\color{#96B6EC}ଳ \color{#4E62A7}˖}$$
 
-![alt text](https://github.com/CantarellaFisalia/CantarellaFisalia/blob/c1521e08512a113be727fa6d148896d9c5759389/IMG_0390%20(14).png) &nbsp; ![alt text](https://github.com/CantarellaFisalia/CantarellaFisalia/blob/d9b3334fb31f4f382c60e44fcffc321a37a678da/IMG_0390%20(13).png) &nbsp; ![alt text](https://github.com/CantarellaFisalia/CantarellaFisalia/blob/3c741ce73347a6cd3ded96d67036a0b21bd172bf/IMG_0390%20(12).png)
+<sub>${\text{\color{#4E62A7} Kiss　\color{#5B7EB4} me \color{#618DBA} like \color{#8DB5E6} you \color{#9CB7F5} mean \color{#A9B6F7} it.}}$
 
-[![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Gamja+Flower&pause=1000&color=B6A7F7&center=true&width=435&lines=%22Aren't+these+jellyfish+beautiful%3F%22;%22Come%2C+try+touching+one...+a+light+caress.%22;%22There%2C+there%2C+you+needn't+be+afraid.%22;%22I+would+never+put+you+in+harm's+way.%22)](https://git.io/typing-svg)
+![Alt Text](https://github.com/SodanGum/SodanGum/blob/0476749879acfd5cac7cdadb0acdb02bcf028bba/tumblr_c284cfbe0ddf8dfc67e859c6b957a47d_7b853b4e_2048-removebg-preview%20(1).png)
 
-[Clip of the Week](https://www.youtube.com/shorts/_zXzVN_nwxI) &nbsp;&nbsp;&nbsp; [Clip of the Week Archive](https://pastebin.com/UqBp6Eit)
+$${\color{#4B5BA4}⋆}$$ $${\color{#36368D}˙}$$ &nbsp;&nbsp;[![Alt Text](https://github.com/SodanGum/SodanGum/blob/d3a9f559f5ab81dfc5f2e1f9638e107c76b39a40/IMG_1002_50.png)](https://sodangum.atabook.org/) &nbsp; [![Alt Text](https://github.com/SodanGum/SodanGum/blob/2a7cd0dee1bedb2add93cf9a2cd8b8aa22fcea72/IMG_1005_50.png)](https://the-bane.straw.page/)  &nbsp; [![Alt Text](https://github.com/SodanGum/SodanGum/blob/43f35482ba51e2dbb71499b79f077b5389eccba8/IMG_1004_50.png)](https://pronouns.cc/@SodanGum)
 
 
-![](https://komarev.com/ghpvc/?username=CantarellaFisalia&label=Sweet+dreams+my+dear+jellyfish&color=c5a4d9&style=for-the-badge)
+
+
+![](https://komarev.com/ghpvc/?username=CantarellaFisalia&label=۶۟ৎ&color=1D214D&style=plastic)
