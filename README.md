@@ -9,7 +9,7 @@ ${\text{\color{#041143}The \color{#08185A}final \color{#0F1E67}challenge \color{
 
 ${\text{\color{#3065AA}✃ \color{#041143}You \color{#08185A}haven't \color{#273892}changed. \color{#08185A}Still \color{#273892}weak. \color{#08185A}Still \color{#273892}sentimental. \color{#08185A}Still \color{#273892}vulnerable. \color{#879FDF}┈ \color{#7291D0}┈ \color{#879FDF}┈ \color{#7291D0}┈ \color{#879FDF}┈ \color{#7291D0}┈ \color{#879FDF}┈ \color{#7291D0}┈ \color{#879FDF}┈ \color{#7291D0}┈ \color{#879FDF}┈ \color{#7291D0}┈ \color{#879FDF}┈ \color{#7291D0}┈ \color{#879FDF}┈ \color{#7291D0}┈ \color{#879FDF}┈ \color{#7291D0}┈ \color{#879FDF}┈ \color{#7291D0}┈ \color{#879FDF}┈ \color{#7291D0}┈ \color{#879FDF}┈}}$
 
-<p align="center"><img width="400" src="https://github.com/CantarellaFisalia/CantarellaFisalia/blob/266d83faa26779bc70bbb751135e7d9e7bb62379/Untitled188_20260809212405.png" alt="blue chisa" align="right" width="750" /></p>
+<p align="center"><img width="400" src="https://github.com/CantarellaFisalia/CantarellaFisalia/blob/266d83faa26779bc70bbb751135e7d9e7bb62379/Untitled188_20260809212405.png" alt="blue chisa" align="right" width="1000" /></p>
 
 <br>
 
