@@ -1,14 +1,41 @@
+
+  
+$${\color{#96B6EC}✃ \color{#4E62A7}ﾒ}$$
+
+${\text{\color{#041143}The \color{#08185A}final \color{#0F1E67}challenge \color{#162573}is \color{#213086}calling \color{#7291D0}you. \color{#7291D0}┈ \color{#879FDF}┈ \color{#7291D0}┈ \color{#879FDF}┈ \color{#7291D0}┈ \color{#879FDF}┈ \color{#7291D0}┈ \color{#879FDF}┈ \color{#7291D0}┈ \color{#879FDF}┈ \color{#7291D0}┈ \color{#879FDF}┈ \color{#7291D0}┈ \color{#879FDF}┈ \color{#7291D0}┈ \color{#879FDF}┈ \color{#7291D0}┈ \color{#879FDF}┈ \color{#7291D0}┈ \color{#879FDF}┈ \color{#7291D0}┈ \color{#879FDF}┈ \color{#7291D0}┈ \color{#879FDF}┈ \color{#7291D0}┈ \color{#879FDF}┈ \color{#7291D0}┈ \color{#879FDF}┈}}$
+
+
+![Alt Text](https://github.com/CantarellaFisalia/CantarellaFisalia/blob/ac9803660202c8e93b9057aadb044bae4951388a/ScreenRecording_08-05-202622-59-26_1-ezgif.com-video-to-gif-converter.gif)
+
+${\text{\color{#3065AA}✃ \color{#041143}You \color{#08185A}haven't \color{#273892}changed. \color{#08185A}Still \color{#273892}weak. \color{#08185A}Still \color{#273892}sentimental. \color{#08185A}Still \color{#273892}vulnerable. \color{#879FDF}┈ \color{#7291D0}┈ \color{#879FDF}┈ \color{#7291D0}┈ \color{#879FDF}┈ \color{#7291D0}┈ \color{#879FDF}┈ \color{#7291D0}┈ \color{#879FDF}┈ \color{#7291D0}┈ \color{#879FDF}┈ \color{#7291D0}┈ \color{#879FDF}┈ \color{#7291D0}┈ \color{#879FDF}┈ \color{#7291D0}┈ \color{#879FDF}┈}}$
+
+<p align="center"><img width="400" src="https://github.com/CantarellaFisalia/CantarellaFisalia/blob/266d83faa26779bc70bbb751135e7d9e7bb62379/Untitled188_20260809212405.png" alt="blue chisa" align="right" width="750" /></p>
+
+<br>
+
 <div align="center">
 
-$${\color{#96B6EC}ଳ \color{#4E62A7}˖}$$
-
-<sub>${\text{\color{#4E62A7} Kiss　\color{#5B7EB4} me \color{#618DBA} like \color{#8DB5E6} you \color{#9CB7F5} mean \color{#A9B6F7} it.}}$
-
-![Alt Text](https://github.com/SodanGum/SodanGum/blob/0476749879acfd5cac7cdadb0acdb02bcf028bba/tumblr_c284cfbe0ddf8dfc67e859c6b957a47d_7b853b4e_2048-removebg-preview%20(1).png)
-
-$${\color{#4B5BA4}⋆}$$ $${\color{#36368D}˙}$$ &nbsp;&nbsp;[![Alt Text](https://github.com/SodanGum/SodanGum/blob/d3a9f559f5ab81dfc5f2e1f9638e107c76b39a40/IMG_1002_50.png)](https://sodangum.atabook.org/) &nbsp; [![Alt Text](https://github.com/SodanGum/SodanGum/blob/2a7cd0dee1bedb2add93cf9a2cd8b8aa22fcea72/IMG_1005_50.png)](https://the-bane.straw.page/)  &nbsp; [![Alt Text](https://github.com/SodanGum/SodanGum/blob/43f35482ba51e2dbb71499b79f077b5389eccba8/IMG_1004_50.png)](https://pronouns.cc/@SodanGum)
-
+$${\color{#273892}‎ . ݁⋆ \color{#7291D0}۶ৎ \color{#273892}݁˖ . ݁ \color{#3065AA}݁She \color{#7291D0}· \color{#3065AA}݁Her}$$
+<br/>
+$${\color{#7291D0}Overclocking \color{#3065AA}⏱ \color{#273892}{\textsf{　⸝⸝　}} \color{#3065AA}{\textsf{ 3/}} \color{#3065AA}{\textsf{ 07 }} \color{#273892}݁}$$
+<br/>
+${\text{\color{#273892}"Easy \color{#273892}there, \color{#273892}dear \color{#7291D0}player."}}$
+</div>
 
 
+<div align="center">
+<details>
+<summary>$\color{#3065AA}{\textsf{ Links }}$</summary>
+<a href="https://sodangum.atabook.org/">Atabook</a>
+$${\color{#7291D0}✦}$$
+  <a href="https://the-bane.straw.page/">StrawPage</a>
+$${\color{#7291D0}✦}$$  
+ <a href="https://pronouns.cc/@SodanGum">Pronouns</a>
+ </details>
+</div>
 
-![](https://komarev.com/ghpvc/?username=CantarellaFisalia&label=۶۟ৎ&color=1D214D&style=plastic)
+<div align="center">
+
+  ![](https://komarev.com/ghpvc/?username=CantarellaFisalia&label=۶۟ৎ&color=041143&style=plastic)
+
+  </div>
